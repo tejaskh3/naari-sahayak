@@ -1,4 +1,4 @@
-**Naari Sayak** - Empowering Women's Health
+**Naari Sahayak** - Empowering Women's Health
 
 Naari Sayak is more than just an app; it's a dedicated companion on the journey to better health for adolescent girls and pregnant or lactating mothers in the Mehsana district. With a name inspired by the strength and resilience of women, Naari Sayak aims to be a guiding light in the battle against anemia.
 
